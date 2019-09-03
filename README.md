@@ -1,5 +1,5 @@
-# AiLe-home-furnishing
-AiLe home furnishing is committed to promoting high-quality home furnishing products, so that people can purchase the best home furnishing products efficiently and in high quality in daily life. Our household products are of high quality and are the best choice for your life.
-Our app displays a full range of household furniture, including sofa, bed, living room furniture, bedroom furniture, kitchen furniture, study furniture, hanging chair, pillow, mural, home building materials, cloth art products, home decorations and other household articles. These kinds of various, a complete range of household items can meet the user's choice and purchase. At the same time, our app makes a very detailed classification of these household items, helping users quickly find what they want to buy.
+Boshan tea house is dedicated to promoting the tea culture of the Chinese nation, so that people can buy the tea they want efficiently and high-quality in their daily life. Let people more closely understand the tea culture of the Chinese nation.
+Our app displays a complete range of tea products, including raw tea, pre-ming tea, white tea, puer tea, book tea and other tea products. Our app also displays tea sets, tea utensils and other tea products. These categories of tea products can meet the needs of users to select and purchase. At the same time, our app has made a very detailed classification of these products, which is helpful for users to quickly find the tea they want to buy. Our app allows users to enjoy Chinese tea culture easily and happily.
+Boshan teahouse to accompany you to drink a good tea every month!
 
-If you have any questions, please contact us at wenpinxuan1@163.com
+If you have any questions, please contact us at KaylynnWhoopi94@gmail.com
