@@ -1,4 +1,3 @@
- Our App is dedicated to promoting beautiful and practical cups so that people can purchase healthy and practical cups efficiently and effectively in their daily life. Our cups insist on the use of food grade materials, so that you can buy at ease, ease of use.
-   Our app shows a full range of cups, including ceramic cups, thermostatic cups, glass cups, thermos cups, sports cups and other cups. These full range of cups can meet the user's selection and procurement. At the same time, our app classifies these cups in a very detailed way, which helps users quickly find the cups they want to buy.
-   Use our cup to make your life more convenient.
-If you have any questions, please contact us at schornakmorin@gmail.com
+ Rundu health club is committed to the promotion of professional health physiotherapy services, so that people can make appointments in daily life convenient and convenient our professional health physiotherapy services. We provide users with professional health therapy services, so that users can enjoy our services, health and comfort.
+Our app shows a full range of health therapy services, including massage service, moxibustion service, foot therapy service, cupping service and other traditional Chinese physiotherapy services. These types of comprehensive health therapy services can meet the user's appointment and selection. Our app classifies these health care services so that users can quickly find the health care services they want to make an appointment.
+If you have any questions, please contact us at karpdz@163.com 
