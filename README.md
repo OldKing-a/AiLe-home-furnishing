@@ -1,4 +1,4 @@
-ChuanYuFood is committed to the promotion of sichuan and chongqing specialty food, so that people can purchase the sichuan and chongqing food in their daily life with high efficiency and quality. Spicy, fresh flavor is our sichuan and chongqing food characteristics, delicious, healthy, safe, delicious sichuan and chongqing specialty advantages.
-Our app shows a variety of sichuan and chongqing delicacies, including meat, snacks, eggs, sweets and other sichuan and chongqing specialties. These complete categories of sichuan and chongqing specialty food can meet the user's choice and purchase. At the same time, our app makes a very detailed classification of these sichuan and chongqing specialty foods to help users quickly find the sichuan and chongqing specialty foods they want to buy.
-To sichuan and chongqing food, experience sichuan and chongqing passion like fire.
-If you have any questions, please contact us at anglusongna@163.com
+FeiBi dance is committed to the promotion of professional dance courses so that people can make appointments for our dance courses efficiently and efficiently in their daily life. We provide users with professional dance training, so that users can quickly master the dance skills.
+Our app shows a variety of dance courses, including yoga class, modern dance class, hip hop dance class, Latin dance class, jazz dance class and other dance classes. These complete categories of dance lessons can be selected and booked by the user. Our app classifies these dance courses in great detail, which helps users quickly find the dances they want to learn.
+Come to phoebe dance, let you dance happily
+If you have any questions, please contact us at bing636putao@163.com
